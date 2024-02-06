@@ -9,7 +9,7 @@ allowing me to apply theoretical concepts to practical scenarios. Currently, enr
 I am continuously expanding my expertise and staying abreast of the latest industry trends.
 I am driven by a passion for learning and an insatiable curiosity for data-driven insights. 
 Excited to connect with professionals, mentors, and opportunities in the dynamic realm of Data Science.
-GMail-rajurajareddy74@gmail.com
 
+GMail-rajurajareddy74@gmail.com
 linkedin-Rajareddy Sarasam
 
