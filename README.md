@@ -10,5 +10,6 @@ I am continuously expanding my expertise and staying abreast of the latest indus
 I am driven by a passion for learning and an insatiable curiosity for data-driven insights. 
 Excited to connect with professionals, mentors, and opportunities in the dynamic realm of Data Science.
 GMail-rajurajareddy74@gmail.com
+
 linkedin-Rajareddy Sarasam
 
